@@ -1,0 +1,1 @@
+gow-mythic-tier-list
